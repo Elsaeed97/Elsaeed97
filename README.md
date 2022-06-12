@@ -10,7 +10,7 @@
 - 📫 How to reach me: elsaeedahmed97@gmail.com.
 - 🌱 I love reading about Product/Engineering and self-development.
 - 🍵 I drink tea all the time.
-- 🇪🇬 Based in Mansoura, Egypt
+- 🇪🇬 Based in Nasr City, Egypt
 - 😄 Always open to learn new things.
 
 
